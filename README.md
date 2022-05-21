@@ -24,7 +24,7 @@ LANJUTAN
 
 LANJUTAN
 
-![image](https://user-images.githubusercontent.com/101801920/169647543-8271926e-976d-4846-9930-a24177482349.png)
+![image](https://user-images.githubusercontent.com/101801920/169647963-0afcebac-9fd8-4139-bd77-c7ac16cfc55e.png)
 
 LANJUTAN
 
